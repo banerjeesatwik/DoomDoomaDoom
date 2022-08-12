@@ -1,2 +1,2 @@
 # DoomDoomaDoom
-itz a DoomDoomaDoom😁
+DrumKit made for fun😁
